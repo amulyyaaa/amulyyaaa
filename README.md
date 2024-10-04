@@ -3,7 +3,7 @@
 - I’m currently learning java and new coding skills.
 - I’m looking to collaborate on anything tech!.
 - Let's connect: amulyyaaa.ms11@gmail.com .
-- Pronouns:she/her 
+- Pronouns: she/her. 
 - Fun fact: I love sad songs, even on happy days.
 
 <!---
